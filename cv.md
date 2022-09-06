@@ -27,5 +27,4 @@ Zero
 Did courses on stepik
 
 ## English
-
-I have done this CV without dictionary.
+I think that it's not so bad, cause have done this CV without dictionary.
